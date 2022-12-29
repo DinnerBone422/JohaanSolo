@@ -5,5 +5,5 @@ I'm also learning basic Engeinering, Eletronics and more.
 I'm Currntly a High-School Student at Roncalli Collage Timaru.
 You can reach me by Email witch is "johaanp2008@gmail.com",
 Or if you preffer to call me use my phone number witch is "+64224240565".
-Visit my website at http://johaanp.tk (it maybe down at the current time)
+Visit my website at http://johaanp.tk
 - Johaan Paul
